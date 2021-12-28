@@ -8,3 +8,12 @@ Experienced and self-motivated professional with nine years of industry experien
 ### Fraud Detection
 
 Fraud detection is a set of processes and analyses that allow businesses to identify and prevent unauthorized financial activity. This can include fraudulent credit card transactions, identify theft, cyber hacking, insurance scams, and more.
+
+# Training
+
+Gained Project Management Professional Knowledge Certificate by participating in vigorous 35 hour’s workshop (Year 2015 and Year 2018)
+Workshop on Problem solving techniques.
+Client Interfacing Skills
+Understanding basics of Agile and Scrum Management system
+HR Analytics Training
+Workshop on “Basics of Design Thinking”
