@@ -17,3 +17,8 @@ Client Interfacing Skills
 Understanding basics of Agile and Scrum Management system
 HR Analytics Training
 Workshop on “Basics of Design Thinking”
+
+# Academic Qualifications
+
+Masters in Science – Artificial Intelligence and Machine Learning (Pursuing)
+B.TECH in Electronics and Communication Engineering, SASTRA University, 2011
