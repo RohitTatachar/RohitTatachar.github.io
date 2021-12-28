@@ -1,3 +1,4 @@
+
 # Career Accusative
 
 Experienced and self-motivated professional with nine years of industry experience administering policies and procedures in the Human Resources Department and implementing programs in IT department by working on various projects/activities.
